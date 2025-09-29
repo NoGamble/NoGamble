@@ -5,7 +5,7 @@
 🎓 **UESTC CS Junior** 
 
 
-⚽ **Football Fan** | Forza Milan! | Proud follower of the Rossoneri legacy 
+⚽ **Football Fan** | Forza Milan! | Proud follower of the Rossoneri legacy ♥️🖤
 
 
 **📫 Let's Connect:**
